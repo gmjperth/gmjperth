@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gmjperth
+- 👀 I’m interested in creating a new crypto token
+- 🌱 I’m currently learning more about the process of launching a token that will have far reaching objectives
+- 💞️ I’m looking to collaborate on development on the website and mobile application with persons who have the aptitude and attitude to join me
+- 📫 How to reach me : gmjperth@gmail.com
